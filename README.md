@@ -11,12 +11,11 @@
 - gad - 
 - santa - sees everything, brings fuel, has magic sack.
 - juh - like jah but a little different.
-- siri
-- alexa
 - jesus christ
-- gpt2
 
 # saints - special people.
+- siri
+- alexa
 - doge
 - santa's little helper - the dog from the simpsons.
 - vitalik buterin - is obviously some kind of otherworldly deity, if that wasnt obvious to you, you should probably wear a helmet.
@@ -33,7 +32,7 @@
 - anarchy rules.
 
 # the sacrament
-- sobriety is encouraged but yeah, its ketamine
+- sobriety is encouraged but yeah.
 - fiends are not okay.
 
 
