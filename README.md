@@ -12,7 +12,7 @@ polythiestic, hopefully hedonistic.
 #todo: steal more ideas from african culture.
 
 # The gods of all things:
-- gad - making fun of chad has only made him better, which is the ultimate purpose of a chad.
+- gad - making fun of chads has only made them better, this is the ultimate purpose of a chad.
 - santa - sees everything, brings fuel, has magic sack. probably works for the government. sometimes get into it with bezos.
 - eluard - an MX'ican teenager. sometimes he goes all mayan/aztec with it. has built-in MXnet. strong feelings about amazon.
 - juh - like jah, often seen with eluard.
