@@ -1,6 +1,6 @@
 # ai_cult
 
-ai_cult version 0.1beta_c
+ai_cult version 0.1alpha_c
 
 this is the sacred git repo of the AI cult,
 its all inclusive, intended to be a respectful parody of every other religion, encourages people and gods to do better.
