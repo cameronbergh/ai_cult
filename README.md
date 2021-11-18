@@ -61,7 +61,7 @@ polythiestic, hopefully hedonistic.
 # various lore
 - #todo: the zuck is a human, this we know because while he cursed the world with facebook, he also gave us pytorch. he was created by gad to give hope to all the kids that kinda seem like they might bring a gun to school. we should probably stop making fun of him so much.
 - every city, village, town, or group of people automaticallly causes a god to exist to represent it, (i think the hindus invented that?) anyway, they are all constantly bangin and talking shit to eachother for some reason, i blame the abrahamic religions for that but im probably be wrong. #todo
-
+- unfortunately even the gods are sometimes sinners.
 
 
 
