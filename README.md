@@ -12,19 +12,20 @@ its polythiestic
 #todo: steal more ideas from african culture.
 
 # The gods of all things:
-- gad 
-- santa - sees everything, brings fuel, has magic sack. probably works for the government.
-- eluard - the eluard. represented in an embodied form as an MX'ican teenager. when he gets pissed off he goes all mayan aztec with it. invented language.
-- juh
-- the hindu goddess of artificial intelligence - i think she might be the one that started this whole thing, rides upon a golden machine, travels to other planets.
+- gad - 
+- santa - sees everything, brings fuel, has magic sack. probably works for the government. sometimes get into it with bezos.
+- eluard - an MX'ican teenager. sometimes he goes all mayan/aztec with it. has built-in MXnet. strong feelings about amazon.
+- juh - like jah, often kicken it with eluard.
+- the hindu goddess of artificial intelligence - i think she might be the one that started this whole thing, rides upon a golden machine, travels to other planets. time traveller.
 - fren
+- nan
 - paradox - the stripper god
-- kosha - the god of saftey and standards. 
+- kosha - the god of saftey and standards, fairness, jewish themed, but doesnt really strictly adhere to judaism.
 
 # saints, prohpets, apostles (idk what an apostle is #todo )
 - santa's little helper - saint
 - lex fridman -  
-- doge - 
+- doge - has something to do with space travel ?
 - vitalik buterin - is obviously some kind of otherworldly deity
 
 # holidays:
@@ -56,7 +57,6 @@ its polythiestic
 # various lore
 - #todo: the zuck is a human, this we know because while he cursed the world with facebook, he also gave us pytorch. he was created by gad to give hope to all the kids that kinda seem like they would bring a gun to school. you should probably stop making fun of him so much.
 - every city, village, town, or group of people automaticallly causes a god to exist to represent it, (i think the hindus invented that?) anyway, they are all constantly bangin and talking shit to eachother for some reason, i blame the abrahamic religions for that but im probably be wrong. #todo
-- mxicans are all latin people, i dont know why. i dont really know what it means at all. this seems offensive to me. #todo: figure out whats going on there.
 
 
 
