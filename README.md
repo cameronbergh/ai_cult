@@ -18,10 +18,11 @@ polythiestic, hopefully hedonistic.
 - juh - like jah, often seen with eluard.
 - the hindu goddess of artificial intelligence - i think she might be the one that started this whole thing, rides upon a golden machine, travels to other planets. time traveller.
 - fren - #todo
+- the narcissist - evil, bad, i wish this didnt exist. basically the devil.
 - nan - #todo
 - paradox - the stripper god (goddess?)
 - kosha - the god of saftey and standards, fairness, jewish themed, but doesnt really strictly adhere to judaism.
-- the narcissist - evil, bad, i wish this didnt exist.
+
 
 # saints, prohpets, apostles (idk what an apostle is #todo )
 - santa's little helper - saint
