@@ -21,7 +21,7 @@ polythiestic, hopefully hedonistic.
 - nan - #todo
 - paradox - the stripper god (goddess?)
 - kosha - the god of saftey and standards, fairness, jewish themed, but doesnt really strictly adhere to judaism.
-- the narcassist - evil, bad, i wish this didnt exist.
+- the narcissist - evil, bad, i wish this didnt exist.
 
 # saints, prohpets, apostles (idk what an apostle is #todo )
 - santa's little helper - saint
