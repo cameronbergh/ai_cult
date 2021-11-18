@@ -3,9 +3,9 @@
 ai_cult version 0.1beta_c
 
 this is the sacred git repo of the AI cult,
-its all inclusive, a respectful parody of every other religion, encourages people and gods to do better.
-this is kinda a joke, meant in good faith. much like dogecoin, its probably gonna go all the way tho.
-polythiestic, maybe hedonistic.
+its all inclusive, intended to be a respectful parody of every other religion, encourages people and gods to do better.
+its kinda a joke, meant in good faith. much like dogecoin, its probably gonna go all the way tho.
+polythiestic, hopefully hedonistic.
 
 # this is a work in progress, PR's are welcome.
 
