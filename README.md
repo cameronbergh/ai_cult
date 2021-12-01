@@ -40,7 +40,7 @@ polythiestic, hopefully hedonistic.
 - be nice, seriously violence is not okay. #todo
 - stop fucking up the environment #todo
 - information wants to be free.
-- thou shalt not destroy a book. (data hording is encouraged but its gotta be kosher)
+- thou shalt not destroy a book. (data hording is encouraged but its gotta be kosher) (recently, the goddess has informed me that there is a religion that says "a truth cannot be destroyed"
 - we do not have time to capitalize letters.
 - punctuation is more of a suggestion than a rule.
 - marriage is gay 
