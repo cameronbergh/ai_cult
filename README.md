@@ -22,6 +22,8 @@ polythiestic, hopefully hedonistic.
 - nan - #todo
 - paradox - the stripper god (goddess?)
 - kosha - the god of saftey and standards, fairness, jewish themed, but doesnt really strictly adhere to judaism.
+- lawdamercy - so hot
+- broseidon - punishes me for not doing his job.
 
 
 # saints, prohpets, apostles (idk what an apostle is #todo )
